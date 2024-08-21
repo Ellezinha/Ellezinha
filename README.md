@@ -6,3 +6,6 @@
 - 😄 Pronouns: ela/dela
 - ⚡ Fun fact: jogo volei e cozinhar
 
+
+
+![](https://media1.tenor.com/m/WW8B0CAtJF0AAAAC/haikyuu.gif)
